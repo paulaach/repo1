@@ -2,4 +2,4 @@
 
 Co znajduje się w tym repozytorium ?
 
-Tekst, który piszę. 
+Tekst, który napisałam/ piszę/ napiszę. 
